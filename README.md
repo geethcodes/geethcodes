@@ -28,5 +28,5 @@ I work on computational biology, especially **single-cell, multi-omics, and spat
 
 ### 📫 Contact
 
-📧 gkarutur@iu.edu
+📧 karuturigeethanjali9@gmail.com
 🔗 https://www.linkedin.com/in/geethanjali64
